@@ -1,0 +1,4 @@
+Rapid-Browser-Pro
+=================
+
+The name says it all! If you have in mind a simple yet a high performing browser, you are in the right track..!! Feel the new browsing experience through this simple,fast, easy to use, intuitive, high performance browsing application from probuk solutions… ‘Rapid Browser Pro’ provides the fastest browsing for you in your android device. Browse rapidly with ease in a simple and user friendly interface.  ‘Rapid Browser Pro’r is all about speed. Its all quick. In a split second you reach wherever you want to. Fast performance is the key feature makes rapid browser stands out among all other browsers. Moreover, the simple attire adds to its advantages. Any beginner would easily understand the settings and interface. From now on use this browser and be a part of ultra- fast browsing experience. 
